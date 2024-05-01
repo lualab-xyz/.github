@@ -1,3 +1,3 @@
-## Hello moon! 👋
+## Hello earth! 👋
 
-Coming soon with awesome stuff 💫
+Coming soon with awesome stuff 🌜
